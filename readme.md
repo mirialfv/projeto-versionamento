@@ -1,8 +1,6 @@
 \# Minhas férias de verão
 
-\## Um livro de: Miriã Lopes Ferraz
 
 
-
-Nas minhas últimas férias de verão fui para Ubatuba, onde aproveitei muito a cidade, conheci diversas cachoeiras, praias e até a gastronomia.
+Nas minhas últimas férias de inverno fui para Ubatuba, onde aproveitei muito a cidade, conheci diversas cachoeiras, perdido e até a gastronomia.
 
